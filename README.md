@@ -1,1 +1,0 @@
-# cut-animal-ar-project6gmwi8
